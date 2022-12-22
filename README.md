@@ -1,0 +1,2 @@
+# rezeki
+Rezeki selalu ada
